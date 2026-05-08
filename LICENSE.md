@@ -1,4 +1,4 @@
-
+Enhance Final Cut Pro for macOS with Final Cut Pro for macOS vip Automation: stream-overlays & auto-tune, the #1 automation. Includes stream-overlays and auto-tune for a smoother
 
 
 
